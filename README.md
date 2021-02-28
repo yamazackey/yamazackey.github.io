@@ -1,0 +1,1 @@
+# yamazackey.github.io
